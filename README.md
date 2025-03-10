@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Noura 👋
 
 - 🔭 I'm a data analyst junior 
 - 🌱 I’m willing to do a new project to forge my skills and develop it 
